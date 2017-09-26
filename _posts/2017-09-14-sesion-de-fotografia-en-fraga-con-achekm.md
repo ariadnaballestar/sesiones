@@ -30,7 +30,7 @@ flickralbum: 72157686350050491
 
 Ahora que nuestros caminos se han separado, que yo soy **fotógrafa en Barcelona** y el es chef en Lyon, no podemos vernos tanto como quisiéramos, por desgracia, pero de vez en cuando se deja caer por nuestro pequeño pueblo y retomamos viejas costumbres. 
 
-Hace poco vino a visitar a su familia y amigos. Ese día yo tenía una sesión de fotos en Fraga, él vino a acompañarme y, al terminar la sesión, dando una vuelta por *''Lo castell''*, le saqué estas fotos. No fueron ni 5 minutos, pero creo que se puede ver lo cómodos que estábamos y lo bien que lo pasamos cada vez que nos reencontramos.
+Hace poco vino a visitar a su familia y amigos. Ese día yo tenía una sesión de fotos en Fraga, él vino a acompañarme y, al terminar la sesión, dando una vuelta por *"Lo castell"* de Fraga, le saqué estas fotos. No fueron ni 5 minutos, pero creo que se puede ver lo cómodos que estábamos y lo bien que lo pasamos cada vez que nos reencontramos.
 
 Os dejo un enlace a [su canal de youtube](https://www.youtube.com/channel/UCJ22UFZqUd_Q4H2H-Zt2D_w) para que podáis seguir todos sus trabajos como rapero, porque este chico también se dedica a la música y lo hace realmente bien!
 
