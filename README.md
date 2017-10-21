@@ -1,2 +1,1 @@
-# sesiones
-Web de Ariadna Ballestar sección sesiones
+New repo at https://github.com/ariadnaballestar/ariadnaballestar.com
